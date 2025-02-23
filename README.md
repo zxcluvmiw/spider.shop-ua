@@ -1,0 +1,1 @@
+# spider.shop-ua
